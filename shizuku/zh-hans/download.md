@@ -1,4 +1,4 @@
-# 下载
+# 厕所刚刚
 
 [Google Play](https://play.google.com/store/apps/details?id=moe.shizuku.privileged.api)
 
